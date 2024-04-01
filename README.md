@@ -4,7 +4,4 @@
 - 📫 How to reach me **eduardo.spencer266@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/eduardo-spencer-774305a6/](https://www.linkedin.com/in/eduardo-spencer-774305a6/)
-
-<h3 align="left">Connect with me:</h3>
-<p align="left">
 </p>
